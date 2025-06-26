@@ -1,5 +1,5 @@
 # REAL F'S SUPPLY-CHAIN ANALYSIS FOR THE MONTH OF MARCH 2025
-![https://i.postimg.cc/VkX1ksw2/TASK-18B.png]
+![](https://i.postimg.cc/VkX1ksw2/TASK-18B.png)
 
 Executive Summary
  
